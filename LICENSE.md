@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with elite birdeye sniper bot | liquidity-sniping + simulation-mode, the #1 birdeye sniper bot. Includes liquidity-sniping and simulation-mode for a faster
 
 
 
